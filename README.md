@@ -1,2 +1,2 @@
 # learning-
-this my learning process , just started  my tech life
+this is my learning process , just started  my tech life
